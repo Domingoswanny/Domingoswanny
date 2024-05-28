@@ -11,3 +11,5 @@ Meu nome é Wanny Domingos
 domingoswanny@gmail.com 
 
 domingoswanny
+
+![](https://tenor.com/pt-BR/view/giovanna-giovanna-lancellotti-globo-netflix-novela-gif-24422006)

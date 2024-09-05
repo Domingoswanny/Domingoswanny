@@ -7,7 +7,7 @@ Meu nome é Wanny Domingos
 - Estou me desenvolvendo na linguagem JavaScript
 - Utilizo esse espaço  para minha organização e compartilhamento dos meu projeto  desenvolvidos
 
-### Você entrar em contato comigo 📫
+### Você pode entrar em contato comigo 📫
 
 domingoswanny@gmail.com 
 
